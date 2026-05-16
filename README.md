@@ -1,1 +1,1 @@
-Dies ist das Stammbuch der Friederichs in Namiboa
+Dies ist das Stammbuch der Friederichs in Namibia
